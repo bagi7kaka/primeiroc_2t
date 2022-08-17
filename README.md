@@ -1,1 +1,0 @@
-# primeiroc_2t
